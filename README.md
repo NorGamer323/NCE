@@ -3,7 +3,7 @@
 - Reupload because the old repository got spam reported by dumbasses from Rune.
 
   
-- Update, NEW UI:
+- Update, Sorry Guys For RuneUI:
 
 
   ![image](https://github.com/IShade4ReaI/NetflixCE3/assets/143328800/b5653a11-01ca-4fc6-8adc-244d388b28e5)
