@@ -3,7 +3,7 @@
 - Reupload because the old repository got spam reported by dumbasses from Rune.
 
   
-- Update, Sorry Guys For RuneUI:
+- Update,I LIKE INPOSS HAHAHAHA:
 
 
   ![image](https://github.com/IShade4ReaI/NetflixCE3/assets/143328800/b5653a11-01ca-4fc6-8adc-244d388b28e5)
@@ -25,7 +25,7 @@ A modified cheat engine created exclusively for the purpose of injecting into Ro
 
 
 
-NEW GAME LINK: [https://www.roblox.com/games/15530481973/My-Super-Little-Game-D](https://www.roblox.com/games/15530481973/My-Super-Little-Game-D)
+NEW GAME LINK: [https://www.roblox.com/games/15517239361/RC2](https://www.roblox.com/games/15517239361/RC2)
 
 
 
